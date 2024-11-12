@@ -1,7 +1,0 @@
-# [ISRPO](https://disk.yandex.ru/d/WoQ_Kp5d4y9ZEw)
-# [MDK.04.01](https://disk.yandex.ru/d/ryzOnWiA8de1rw)
-# [MDK.04.02](https://disk.yandex.ru/d/EOTxI9iM6idiNA)
-# [PP.04](https://disk.yandex.ru/d/Cxd7aKPBq2qGVw)
-# [Standartization](https://disk.yandex.ru/d/kqozuaR0zITeRA)
-# [YP.02](https://disk.yandex.ru/d/hPGODNVwzIQ7KQ)
-# [YP.04](https://disk.yandex.ru/d/pDRtZzBoH0K79g)
